@@ -1,1 +1,1 @@
-# my-resolusi
+Just my Resolusi
